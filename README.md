@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Regian24
-- 👀 I’m interested in  minecraft
+- 👀 I’m interested in Minecraft mods
 - 🌱 I’m currently learning  gregtech cock and ball torture
-- 💞️ I’m looking to collaborate on  GTNH 2
+- 💞️ I’m looking to collaborate on SexCum9000²
 - 📫 How to reach me  discord : @Regian#0001  ID : 412198009904955403
 
 <!---
