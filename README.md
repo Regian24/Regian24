@@ -1,5 +1,3 @@
-balls
-<!---
-Regian24/Regian24 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Regian24 is a ✨ special ✨ boy because its `sus factor` is very high.
+
+OMOLOGUS: https://www.youtube.com/channel/UCI41121OrBt4PFr8s7A7v4A
